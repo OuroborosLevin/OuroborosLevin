@@ -1,5 +1,5 @@
 - Hi, I’m @OuroborosLevin
-- I’m interested in ... VR development 
+- I’m interested in ... E&M 
 - I’m currently learning ...The basics
 - I’m looking to collaborate on ...Anything 
 
